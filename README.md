@@ -1,0 +1,1 @@
+#Kto spizdet sdohnet
